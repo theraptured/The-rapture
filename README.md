@@ -1,5 +1,5 @@
 # The Rapture: What Really Took Place?
-They say the rapture is a myth. That's it's a fairytale only found in the Christian Bible.
+They say the rapture is a myth. That it's a fairytale only found in the Christian Bible.
 
 But that's a lie.
 
@@ -27,7 +27,7 @@ This particular rapture occurred on **November 21st, 2024.**
 
 ## Who am I to make such bold claims?
 
-I'm a boy, 24 of age. I was left behind to witness the rapture happen before my eyes. God showed me visions of heaven. Heaven is far more beautiful than anything you can imagine.
+I'm a boy, 24 of age. My name is Victor Francis. I was left behind to witness the rapture happen before my eyes. God showed me visions of heaven. Heaven is far more beautiful than anything you can imagine.
 
 ## Why did God rapture people?
 
