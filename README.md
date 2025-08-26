@@ -15,6 +15,8 @@ That was the date.
 
 ## What is the rapture?
 
+![Image](https://github.com/user-attachments/assets/1b91fd66-e224-4877-ba80-4a38c852fb90)
+
 The rapture is a spiritual event prophesied by Jesus and his disciples where God's saints were taken from this earth and catapulted to heaven via God's angels via an ascension.
 
 ## When did the rapture take place?
