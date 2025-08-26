@@ -133,7 +133,7 @@ In our time, Jesus is our Noah's ark.
 
 Get into him before it is too late.
 
-This article was written under Jesus Guidance.
+This article was written under **Jesus** Guidance.
 
-…And the Trinity and Mary - Mother of Christ (....).
+…And the **Trinity and Mary - Mother of Christ (....).**
 
